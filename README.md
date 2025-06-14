@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @FlyingMyLife
 - 👀 I’m interested in Minecraft Java modding
 - 💞️ I’m looking to collaborate ..........
-- 📫 How to reach me - contact in [Telegram](https://t.me/flyingmylife)
+- 📫 How to reach me - [Telegram](https://t.me/flyingmylife)
